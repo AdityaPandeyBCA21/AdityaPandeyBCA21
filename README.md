@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AdityaPandeyBCA21
 - 👀 I’m interested in coding (obviously)
-- 🌱 I’m currently learning coding (again obviously 😅😅)
+- 🌱 I’m currently learning coding (again obviously 🙂🙂)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
